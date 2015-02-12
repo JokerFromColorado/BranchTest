@@ -3,11 +3,5 @@ xxasdasd
 xxxxasasd
 asadsasdsawerwer
 xxxxa
-sadsasdsd
-sdfsdfsdfssewr
-srtyryt
-sfdsfd
-eterertetwreewr
-ertwerwre
 etrrytrytasdsad
 etrwerertert
